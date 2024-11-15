@@ -1,7 +1,7 @@
 # Hallo
 I'm noobieyuh, I just look around and sometimes make stuff for fun!
 
-I don't really use Github much so yeahhhhhhh
+Starting to use GitHub more, having a lot of fun :D
 
 I can't wait to go to bed
 <!---
